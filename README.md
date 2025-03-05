@@ -42,7 +42,7 @@ This Target Test Prep GRE promo code includes several features such as:
 
 ## Get 25% Target Test Prep Discount Code On EA Plans
 
-Claim [25% off](https://gmat.targettestprep.com/) now on all Executive Assessments (EA) plans from TTP, these are specialized prep courses for executive MBA (EMBA) applicants who want to take the EA exam.
+Claim [25% off](http://webcoachpro.com/?out=https%3A%2F%2Fshareasale.com%2Fr.cfm%3Fb%3D1550103%26u%3D1129260%26m%3D97935%26urllink%3D%26afftrack%3Djit) now on all Executive Assessments (EA) plans from TTP, these are specialized prep courses for executive MBA (EMBA) applicants who want to take the EA exam.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfVDy_jaXE4I8ECkK9mYdfQZwvefci9TFz52YaxnSDBhG9okKcGqJ0rNzu0GpVIqLwLYM2d4yfMPh_odOgMxa8iQF3jPG6R1npKITsSjFWT9aOwRCTlVD2PCJ1k3-OYXf7Ux283EA?key=S7-gztoYIWwjWFoBMDntZC3V)](http://webcoachpro.com/?out=https%3A%2F%2Fshareasale.com%2Fr.cfm%3Fb%3D1550103%26u%3D1129260%26m%3D97935%26urllink%3D%26afftrack%3Djit)
 
@@ -75,7 +75,7 @@ A few courses which are included in this Target Test Prep promo code are:
 
 ## Target Test Prep 25% Coupon Code on SAT Plans
 
-Why pay full price when you can save big on your SAT prep? Use our Target Test Prep [25% coupon](https://gmat.targettestprep.com/) code and get $50 off your SAT study plan!
+Why pay full price when you can save big on your SAT prep? Use our Target Test Prep [25% coupon](http://webcoachpro.com/?out=https%3A%2F%2Fshareasale.com%2Fr.cfm%3Fb%3D1550103%26u%3D1129260%26m%3D97935%26urllink%3D%26afftrack%3Djit) code and get $50 off your SAT study plan!
 
 ðŸš€ Get access to expert-led video lessons that break down every SAT concept in a way that actually makes sense.
 
@@ -85,7 +85,7 @@ Don't miss out on this Target Test Prep deal now and start prepping smarter! ðŸ”
 
 ## Target Test Prep Black Friday Deal | Get 25% Off [Expired]
 
-You could get [25% off](https://gmat.targettestprep.com/) on everything during the Target Test Prep Black Friday sale 2024, it rolled out in mid-November with the biggest offering of the year.
+You could get [25% off](http://webcoachpro.com/?out=https%3A%2F%2Fshareasale.com%2Fr.cfm%3Fb%3D1550103%26u%3D1129260%26m%3D97935%26urllink%3D%26afftrack%3Djit) on everything during the Target Test Prep Black Friday sale 2024, it rolled out in mid-November with the biggest offering of the year.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdouaIVEDeHh--w42Dqgm5Fm7vOxrWzwLyo6r0uh-Hp5yprPiBDjxCmV7MSixQJPyj77YqfBJl7DbFTvbRQOIBLBJ5_rOG6MFUnF6cLPBgVmT-h-qshjCzaZ_XH3mn65wWQ_T1e7w?key=S7-gztoYIWwjWFoBMDntZC3V)](http://webcoachpro.com/?out=https%3A%2F%2Fshareasale.com%2Fr.cfm%3Fb%3D1550103%26u%3D1129260%26m%3D97935%26urllink%3D%26afftrack%3Djit)
 
